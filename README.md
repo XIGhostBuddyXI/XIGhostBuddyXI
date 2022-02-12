@@ -1,0 +1,4 @@
+- I’m @XIGhostBuddyXI
+- I’m interested in Coding and Games
+- I’m currently learning Python
+- Discord : The Joker#8372
